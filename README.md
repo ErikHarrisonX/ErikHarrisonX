@@ -1,4 +1,4 @@
-- Hi, I’m Jade ~(￣▽￣)~*
+- Hi, I’m Erik but I like to go by Jade ~(￣▽￣)~*
 - I’m interested in talking about anything especially art, music, anime, politics, news, weather (utah weather am i right?), etc.
 - Currently learning Artificial Intelligence and working on Bachelors degree for it. []~(￣▽￣)~*
 - Looking to collaborate on any projects 
